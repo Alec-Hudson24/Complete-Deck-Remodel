@@ -31,14 +31,26 @@
   
 ## Gallery / Model Photos
 
-![Before - Old Deck Tear-Out]()
+![Before - Old Deck Tear-Out](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/Old%20Deck.jpeg)
 *Starting point: ripping out the old, rotted deck*
 
-![]()
-**
+![Pulling up Boards](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/Ripping%20up%20old%20deck%20boards.jpeg)
+*Pulling up old rotted wood boards*
 
-![Finished Deck with Pergola]()
-*Completed project: expanded Trex deck, integrated pergola, ready for years of use*
+![New Frame](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/Frame%20New%20Deck.jpeg)
+*Framing up new Deck*
+
+![Installing Trex Floor](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/Installing%20Boards%20New%20Deck.jpeg)
+*Installing New Trex deck boards*
+
+![Completed Deck Close up](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/New%20Deck%20Close.jpeg)
+*Finished Deck From close up*
+
+![Completed Deck Far](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/New%20Deck%20Far.jpeg)
+*Finished Deck From Far Away*
+
+![Evening New Deck](https://github.com/Alec-Hudson24/Complete-Deck-Remodel/blob/main/evening%20New%20Deck.jpeg)
+*A look at the deck at night*
 
 
 *This was my first introduction to large-scale construction projects—done entirely by hand with my dad. It sparked my interest in building and problem-solving.*
